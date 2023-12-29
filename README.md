@@ -12,4 +12,4 @@
 ## 📫 How to reach me:
 
 [![Contact with me](https://skillicons.dev/icons?i=linkedin)](https://www.linkedin.com/in/jigar-kalariya-779728260/) 
-[![Contact with me](https://skillicons.dev/icons?i=instagram)](https://instagram.com/jp_kalariya_9?igshid=YmMyMTA2M2Y=)
+[![Contact with me](https://skillicons.dev/icons?i=instagram)](https://instagram.com/jp_kalariya_28?igshid=YmMyMTA2M2Y=)
